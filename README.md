@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @inayatali
+- 👋 Hi, I’m @inayatali working as Content Moderator
 - 👀 I’m interested to be the part of developing Technology
 - 🌱 I’m currently learning about the advancemt in the Technology World
 - 💞️ I’m looking to collaborate on new Technology
